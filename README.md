@@ -1,1 +1,2 @@
-elevate hour silouette
+elevate your silouette
+body contourship
